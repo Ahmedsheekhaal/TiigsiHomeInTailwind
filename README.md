@@ -3,4 +3,5 @@
 
 
 ###### THis is My Fisrt Web in Tialwind
-* 😎😎😎😎 still learning Tialwind
+* Still learning Tialwind ❤❤❤ 
+* Still I'm beginer 😁😁😁
